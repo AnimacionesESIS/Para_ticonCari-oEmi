@@ -1,0 +1,1 @@
+# Para_ticonCari-oEmi
